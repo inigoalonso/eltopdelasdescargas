@@ -5,7 +5,7 @@
 
 Parodia del clásico "El Top de las Descargas".
 
-Algunos de los links están obsoletos, pero por ahora voy a dejar todo tal y como lo hize hace más de una década.
+Algunos de los links están obsoletos, pero por ahora voy a dejar todo tal y como estaba hace ya más de una década.
 
 Más info:
 * https://www.versvs.net/top-descargas/
